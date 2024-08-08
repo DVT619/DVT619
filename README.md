@@ -1,6 +1,6 @@
-- Hello, I’m Cristiano, Suuuuiiii!!!! Just Kidding @DVT619
+- Hello, I’m Cristiano, Suuuuiiii!!!! @DVT619
 - I love coding ig
-- CS Freshman....Seniors please advice and help
+- CS Freshman....
 - Sigma/Chad ...
 
 <!---
